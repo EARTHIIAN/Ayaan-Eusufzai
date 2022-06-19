@@ -2,7 +2,7 @@
 
 
 ### About me
-Hello! I'm Ayaan, a software developer and the founder of Gevox. I'm currently actively trying to learn more about programming and you can contact me in discord and email (I've made this a bit short because I don't like leaking much info). Discord: 𝘼𝙮𝙖𝙖𝙣#5199 Email: mariolazy123@gmail.com or ayaan.eusufzai@gmail.com  
+Hello! I'm Ayaan aka EARTHIIAN, a software developer and the founder of Gevox. I'm currently actively trying to learn more about programming and you can contact me in discord and email (I've made this a bit short because I don't like leaking much info). Discord: 𝘼𝙮𝙖𝙖𝙣#5199 Email: mariolazy123@gmail.com or ayaan.eusufzai@gmail.com  
 
 ### Projects
 
